@@ -1,2 +1,2 @@
-# https-globly.github.io
-Free proxy web 
+# https://easouq.tech
+Free all in one marketing tools 
